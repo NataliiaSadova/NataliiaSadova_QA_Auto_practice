@@ -1,0 +1,1 @@
+# NataliiaSadova_QA_Auto_practice
